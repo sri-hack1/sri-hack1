@@ -47,6 +47,6 @@ Collaboration is at the heart of innovation, and I'm always eager to collaborate
 
 ## Contact
 
-If you're interested in collaborating or discussing AI-related endeavors, feel free to reach out via email at [srijankumarmaheshwari6@gmail.com](mailto:your.email@example.com) or connect with me on LinkedIn [https://www.linkedin.com/in/srijan-kumar-maheshwari](https://www.linkedin.com/in/yourlinkedinprofile/).
+If you're interested in collaborating or discussing AI-related endeavors, feel free to reach out via email at [srijankumarmaheshwari6@gmail.com](mailto:your.email@example.com) or connect with me on LinkedIn [https://www.linkedin.com/in/srijan-kumar-maheshwari-2425b6226/](https://www.linkedin.com/in/yourlinkedinprofile/).
 
 Let's embark on a journey of exploration and innovation, leveraging the power of artificial intelligence to shape a brighter future together! 🚀

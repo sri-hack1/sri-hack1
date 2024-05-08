@@ -1,6 +1,6 @@
 # About Me
 
-Welcome! 🌟 I'm a passionate third-year AI enthusiast with a relentless drive for innovation and a profound interest in exploring the vast landscape of artificial intelligence. My journey is marked by a continuous quest for knowledge and a commitment to pushing the boundaries of what's possible.
+Hello there! 👋 I'm a third-year AI student passionate about exploring the realms of machine learning and related technologies. As someone in a continuous learning phase, I'm enthusiastic about diving deep into various aspects of artificial intelligence, honing my skills, and contributing to innovative projects.
 
 ## Interests
 
